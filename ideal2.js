@@ -1,1 +1,1 @@
-1000 y tuong 2
+1000 y tuong 2 u dfsdfadfas
